@@ -21,7 +21,7 @@ Grazie per la visita e buona navigazione!
 
 📫 How to reach me: 
 
-https://www.youtube.com/@Pok%C3%A9DocTino    
+[https://www.youtube.com/@Pok%C3%A9DocTino  ](https://www.youtube.com/@Pok%C3%A9DocTino?sub_confirmation=1)  
 
 https://www.instagram.com/pokedoctino26/      
 
