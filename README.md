@@ -1,4 +1,4 @@
-## Benvenuto nel mio portfolio.
+## Salve collezionista! Hai bisogno di aiuto?
 
 Mi chiamo Federico e sono un professionista specializzato nel restauro e nella conservazione di carte da collezione, con particolare attenzione alle carte Pokémon.
 
