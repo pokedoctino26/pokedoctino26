@@ -15,8 +15,6 @@ Il mio obiettivo è valorizzare e preservare le carte da collezione, aiutando co
 
 Grazie per la visita e buona navigazione!
 
-🌱 I’m currently learning new tecniques!
-
 💬 Ask me about restoring Pokémon cards!
 
 📫 How to reach me: 
@@ -26,8 +24,9 @@ Grazie per la visita e buona navigazione!
 https://www.instagram.com/pokedoctino26/      
 
 https://www.tiktok.com/@pokedoctino26
-<!--
-**pokedoctino26/pokedoctino26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Sei rimasto soddisfatto del lavoro? Compila il form per un feedback! 
 https://tally.so/r/LZRYbp
+
+<!--
+**pokedoctino26/pokedoctino26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
